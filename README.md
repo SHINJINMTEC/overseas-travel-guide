@@ -6,15 +6,15 @@
 
 ※ "가" ~ "다"는 Google Form으로 작성 바랍니다.
 
-가. 개인정보 활용 동의서를 작성해 주세요
+가. 아래의 개인정보 활용 동의서를 작성해 주세요
 
 ❗ [개인정보 활용 동의서 작성하기](https://docs.google.com/forms/d/e/1FAIpQLScpdLYV9fOzq4s8VZtxqltKL-XwEN__mKSjj4qMXqfj_FL6rw/viewform?usp=dialog)
 
-나. 해외출장 신청서를 작성해 주세요.
+나. 아래의 해외출장 신청서를 작성해 주세요.
 
 ❗ [해외 출장 신청서 작성하기](https://docs.google.com/forms/d/e/1FAIpQLScTtoX9xgwRnapzj1RHSpP69PLkIo0MLYem0cgEB3Hr3kDZZg/viewform?usp=sharing&ouid=102814636883690136665)
 
-다. 해외 출장 관련하여 서류를 제출해 주세요.
+다. 아래의 해외 출장 관련하여 서류를 제출해 주세요.
 
 ❗ [해외 출장 관련 서류 제출하기](https://docs.google.com/forms/d/e/1FAIpQLSfHPrVVp4n7hOkb1n51nl3ksS0KGy63TUR2rPpd7r0NSuEqFg/viewform?usp=sharing&ouid=102814636883690136665)
 
