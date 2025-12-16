@@ -6,9 +6,9 @@
 
 ※ "가" ~ "다"는 Google Form으로 작성 바랍니다.
 
-가. 아래의 개인정보 활용 동의서를 작성해 주세요
+가. 아래의 개인정보 수집·활용 동의서를 작성해 주세요
 
-❗ [개인정보 활용 동의서 작성하기](https://docs.google.com/forms/d/e/1FAIpQLScpdLYV9fOzq4s8VZtxqltKL-XwEN__mKSjj4qMXqfj_FL6rw/viewform?usp=dialog)
+❗ [개인정보 수집·활용 동의서 작성하기](https://docs.google.com/forms/d/e/1FAIpQLScpdLYV9fOzq4s8VZtxqltKL-XwEN__mKSjj4qMXqfj_FL6rw/viewform?usp=dialog)
 
 나. 아래의 해외출장 신청서를 작성해 주세요.
 
